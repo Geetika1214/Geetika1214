@@ -46,7 +46,7 @@ Whether you’re here to explore my work, collaborate on a project, or just disc
 ---
 
 ## 📫 Let’s Connect  
-- **LinkedIn**: [linkedin.com/in/geetika-garg](#)  
+- **LinkedIn**: [[linkedin.com/in/geetika-garg](https://www.linkedin.com/in/geetika-garg-05035b252)](#)  
 - Always open to collaboration and exciting opportunities 🚀  
 
 ---
